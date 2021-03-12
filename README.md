@@ -9,7 +9,7 @@ Các bạn nghĩ rằng những tờ giấy trắng ko tì vết như các bạn
 
 Lý thuyết, nguyên tắc, tiêu chuẩn và thực tế luôn cách nhau xa.
 
-Các bạn đang làm mất thời gian cá nhân nếu như đang muốn tìm giá trị thực của mình. Còn nếu bạn cũng tranh tối, tranh sáng để nhằm tìm một công việc có lương thì công việc đó của bạn cho dù có làm, có đóng góp thì nó cũng chỉ mang tính chất lừa đảo vì làm mà không tạo ra giá trị. ( Mang tính chất chứ ko phải thực) và một điều nữa chính là việc các doanh nghiệp dùng các bạn họ cũng tốn và lãng phí tài nguyên, tiền bạc. Cho dù bạn nghĩ khoản lương bạn nhận không nhiều so với bạn, chỉ là móng tay với công ty vốn cả triệu đô thì đó là một tư tưởng lợi dụng sự giàu có của người khác chỉ vì muốn một công việc
+Các bạn đang làm mất thời gian cá nhân nếu như đang muốn tìm giá trị thực của mình. Còn nếu bạn cũng tranh tối, tranh sáng để nhằm tìm một công việc có lương thì công việc đó của bạn cho dù có làm, có đóng góp thì nó cũng chỉ mang tính chất lừa đảo vì làm mà không tạo ra giá trị. ( Mang tính chất lừa đảo chứ ko phải thực sự bạn muốn lừa đảo) và một điều nữa chính là việc các doanh nghiệp dùng các bạn họ cũng tốn và lãng phí tài nguyên, tiền bạc. Cho dù bạn nghĩ khoản lương bạn nhận không nhiều so với bạn, chỉ là móng tay với công ty vốn cả triệu đô thì đó là một tư tưởng lợi dụng sự giàu có của người khác chỉ vì muốn một công việc
 
 Tôi đi ăn quán, cô nhân viên ở đó đưa thêm cho tôi nửa các bánh mỳ và nói. Em tặng thêm cho anh. Tôi rất vui vì điều đó. 
 
