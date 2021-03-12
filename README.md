@@ -1,5 +1,5 @@
 # diary-testing
-Ghi lại những suy nghĩ của bạn thân, Note lại các bài viết tâm đắc
+Ghi lại những suy nghĩ của bản thân, Note lại các bài viết tâm đắc
 
 Tôi tạo ra repository này để chia sẻ kỹ hơn cho các bạn đang có ý định muốn và sẽ học auto ở các trung tâm rồi đi làm. 
 
